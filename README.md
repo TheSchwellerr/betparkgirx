@@ -1,5 +1,5 @@
-## [BETPARK GİRİŞ İÇİN TIKLAYIN](https://wwwbetpark783.com)
-## [BETPARK GİRİŞ İÇİN TIKLAYIN](https://wwwbetpark783.com)
+## [BETPARK GİRİŞ İÇİN TIKLAYIN](https://google.com)
+## [BETPARK GİRİŞ İÇİN TIKLAYIN](https://google.com)
 
 # Betpark | Türkiye'nin En Güvenilir Bahis ve Casino Sitesi
 
